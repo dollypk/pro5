@@ -66,6 +66,10 @@ http://line.me/ti/p/~babyvio.
  
 https://www.youtube.com/channel/UCC7F1rXgM0FPJSk7hkBi69Q
 
+# Join Open Chat P.K
+OpenChat.
+https://line.me/ti/g2/VOgoLXfkBVrAssoeL6S41A?utm_source=invitation&utm_medium=link_copy&utm_campaign=default
+
 
 
 
