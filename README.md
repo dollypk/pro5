@@ -7,6 +7,7 @@
 # Thank for 𝐄𝐋𝐅𝐎𝐗
 # 𝐌𝐨𝐫𝐩𝐡𝐢𝐧𝐞 𝐁𝐨𝐭𝐬
 # All member MORPHINE BOTS
+# Thank Dhenza & Greet
 
 # Login via  Token  & email
 # ====INSTALL MELALUI VPS===== 
