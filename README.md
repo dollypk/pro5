@@ -60,7 +60,7 @@
 # bot error pc aja line ok
 http://line.me/ti/p/~resdolly_zonk
 
-http://line.me/ti/p/~mina59.
+http://line.me/ti/p/~babyvio.
 
   Like dan subscribe chanel youtube 
  
